@@ -7,7 +7,7 @@
 
 ![](https://pic.imgdb.cn/item/65241962c458853aef6c26c5.jpg)
 
-[**点击直达官网**](https://go.51tz.cc/sycloud)
+[**点击直达官网**](https://go.1vpn.cc/suyu)
 
 推荐指数：⭐⭐⭐⭐⭐⭐
 
@@ -23,7 +23,7 @@ SYCloud的运营时间可以追溯到几年前，是一家经验丰富的服务�
 
 ![](https://pic.imgdb.cn/item/65241af3c458853aef6cbd97.jpg)
 
-[**点击直达官网**](https://go.51tz.cc/nicecloud)
+[**点击直达官网**](https://go.1vpn.cc/nisi)
 
 推荐指数：⭐⭐⭐⭐⭐
 
@@ -31,21 +31,21 @@ SYCloud的运营时间可以追溯到几年前，是一家经验丰富的服务�
 
 简介：NiceCloud 是在行业中诞生最早的一批电脑翻墙梯子之一，如果有半年以上电脑挂梯子魔法科学上外网经验的小伙伴，对它肯定不陌生。NiceCloud 在全世界都拥有极高的人气，粉丝群体庞大，真爱粉更是数不胜数。NiceCloud 的客户端设计也很简洁，几乎不需要教程，下载后看一眼就会，毕竟就那么几个按钮。作为稳定的老牌机场，价格也并不高，支持解锁流媒体。
 
-##  FJCloud
+##  尔湾云
 
 ![](https://pic.imgdb.cn/item/65241961c458853aef6c2689.jpg)
 
-[**点击直达官网**](https://go.51tz.cc/fjcloud)
+[**点击直达官网**](https://go.1vpn.cc/ewan)
 
 推荐指数：⭐⭐⭐⭐⭐
 
-收费：9.9元/月
+收费：11元/月
 
-简介：FJCloud的出现时间也很早，和 SYCloud 属于同一家公司，但是其主要面对的客户，是轻量应用的魔法翻外网用户，所以套餐流量相较要少一些。但用这个机场节点梯子来上外网google谷歌、youtube油管、刷twitter推特以及支持chatgpt都完全没有问题。虽然定价只要9.9元/月，但是速度靠谱，4k视频一样稳定快速缓冲不卡顿，你完全可以用它来观看奈飞netflix、迪士尼disney、hbo等流媒体。
+简介：尔湾云的出现时间也很早，和 SYCloud 属于同一家公司，但是其主要面对的客户，是轻量应用的魔法翻外网用户，所以套餐流量相较要少一些。但用这个机场节点梯子来上外网google谷歌、youtube油管、刷twitter推特以及支持chatgpt都完全没有问题。虽然定价只要11元/月，但是速度靠谱，4k视频一样稳定快速缓冲不卡顿，你完全可以用它来观看奈飞netflix、迪士尼disney、hbo等流媒体。
 
 ## Surfshark
 
-[**点击直达官网**](https://get.surfshark.net/SH1Mf)
+[**点击直达官网**](https://go.1vpn.cc/surfshark)
 
 推荐指数：⭐⭐⭐⭐
 
